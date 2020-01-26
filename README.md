@@ -1,0 +1,1 @@
+# Veteranhuset-Midt-Norge
